@@ -9,3 +9,7 @@ meu nome é rennan fernandes
 ### você pode entrar em contato comigo
 
 casa.jogo30@gmail.com
+
+@lrhn_rhx
+
+![](https://tenor.com/pt-BR/view/kermit-darkside-star-wars-evil-innerme-gif-12686883553708718330)
